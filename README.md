@@ -1,2 +1,2 @@
 # Base-LSC
-https://discord.gg/WDmwcJRGGC
+Base dispo ici: https://discord.gg/WDmwcJRGGC
