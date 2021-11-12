@@ -1,4 +1,4 @@
 # Base-LSC
-Base style LSC 2 ressource !
+Base flashland  !
 
 Base dispo ici: https://discord.gg/WDmwcJRGGC
